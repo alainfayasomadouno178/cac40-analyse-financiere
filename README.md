@@ -31,5 +31,5 @@ Compétences démontrées : Python · Analyse financière · Automatisation · P
 
 ## Contact
 
-alainfayasomadouno@gmail.com | +33 7 46 52 91 53  
+alainfayasomadouno178@gmail.com | +33 7 46 52 91 53  
 linkedin.com/in/alain-faya-somadouno-8b16a4306
